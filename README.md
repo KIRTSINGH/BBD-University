@@ -1,1 +1,1 @@
-# BBD-University
+# COLLEGE MANAGEMENT
